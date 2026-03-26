@@ -1,0 +1,1 @@
+# macos_for_MSI_GF63_thin_10SC_16S-R5
